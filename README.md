@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @COIN777351
 - 👀 I’m interested in a lot of stuff 
-- 🌱 I’m currently learning mqh
+- 🌱 I’m currently learning math
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
